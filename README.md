@@ -1,0 +1,1 @@
+# Kamausalome.github.io
